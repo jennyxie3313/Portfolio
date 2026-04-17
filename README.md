@@ -1,5 +1,5 @@
 # ✦ Portfolio
-
+https://drive.google.com/file/d/1zr37-4ecYf6t2Q3nqaeZw4V0blcbUti8/view?usp=sharing
 Hi, I'm a visual designer focusing on ACG, branding, and creative direction.
 
 ---
@@ -24,4 +24,4 @@ My work blends aesthetics with storytelling, especially in ACG and digital cultu
 ---
 
 ## ✦ Contact
-Email: your@email.com
+Email: etartsoul@email.com
